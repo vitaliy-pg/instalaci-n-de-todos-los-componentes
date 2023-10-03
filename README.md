@@ -1,0 +1,1 @@
+# instalaci-n-de-todos-los-componentes
